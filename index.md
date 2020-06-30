@@ -10,3 +10,9 @@ schmiedet der Hausherr hier seine weltweiten Schurkenstreiche.
 * will böse sein, ist es aber nicht
 * umsorgt seine Minions
 * findet am Ende immer eine Lösung
+Zitat:
+> Also der Rest des Plans ist ganz einfach.
+> Ich fliege zum Mond. 
+> Ich schrumpfe den Mond. 
+> Ich schnapp mir den Mond. 
+> Ich sitze auf der Toilette mit... 
