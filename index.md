@@ -11,12 +11,8 @@ schmiedet der Hausherr hier seine weltweiten Schurkenstreiche.
 * umsorgt seine Minions
 * findet am Ende immer eine Lösung
 
-##Zitat:
-> Also der Rest des Plans ist ganz einfach.
-> Ich fliege zum Mond. 
-> Ich schrumpfe den Mond. 
-> Ich schnapp mir den Mond. 
-> Ich sitze auf der Toilette mit... 
+## Zitat:
+> Also der Rest des Plans ist ganz einfach ... 
 
 
 <img src="https://i.pinimg.com/474x/8e/7e/f4/8e7ef4be95a3ddccbcd7c5502756a70c.jpg"/>
