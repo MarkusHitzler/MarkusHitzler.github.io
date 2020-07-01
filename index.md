@@ -11,7 +11,7 @@ schmiedet der Hausherr hier seine weltweiten Schurkenstreiche.
 * umsorgt seine Minions
 * findet am Ende immer eine Lösung
 
-## Zitat:
+## Zitat
 > Also der Rest des Plans ist ganz einfach ... 
 
 
